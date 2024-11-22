@@ -11,7 +11,7 @@
 📫 How to reach me: Message me on [LinkedIn](https://www.linkedin.com/in/tinamariewilken/)
 
 ⚡ Fun facts: 
- 1. When I'm not practicing my analyzing skills, I'm collecting more books than I can read in a lifetime.
+ 1. When I'm not practicing my analyzing skills, I'm collecting more books than I can read in a lifetime. 📚🐉
  2. I finished sewing my wedding dress 7:30am the day of. No one believed I made it.
  3. Bikes are my Achilles heel; just give me rollerblades.
 
