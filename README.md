@@ -14,12 +14,12 @@ I believe curiosity is a business superpower—and I’m here to help organizati
 
 Let’s connect if you're looking for someone who blends curiosity, strategy, and data to solve real business problems. I’m open to new opportunities, collaborations, or conversations that make work smarter—and more human.
 
-📫 How to reach me: 
-Send a connection request or message me on [LinkedIn](https://www.linkedin.com/in/tinamariewilken/)
+📫 How to reach me:  
+Send a connection request or message me on [LinkedIn](https://www.linkedin.com/in/tinamariewilken/)  
 📧 tinamariewilken@gmail.com
 
 ⚡ Fun facts: 
  1. When I'm not practicing my analyzing skills, I'm collecting more books than I can read in a lifetime. 📚🐉
- 2. I finished sewing my wedding dress 7:30am the day of. No one believed I made it.
+ 2. I finished sewing my wedding dress 7:30am the day of.
  3. Bikes are my Achilles heel; just give me rollerblades.
 
