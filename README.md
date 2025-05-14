@@ -1,14 +1,22 @@
 👋 Hi, I’m Tina Marie Wilken (she/her/hers).
 
-💼 I'm a Business Analyst and Strategist based in Tucson, AZ.
+Many teams struggle with inefficiencies, disconnected data, and systems that don't scale. Whether you're a growing business or a forward-thinking organization, the frustration of unclear insights and operational friction can hold you back.
 
-👀 I’m interested in leveraging data to drive informed business decisions and optimize strategies. My work typically involves analyzing data trends, generating insightful reports, and identifying opportunities to improve business processes. I focus on uncovering actionable insights that support strategic growth and operational efficiency.
+That’s where I come in.
 
-🌱 I’m currently learning Python.
+With a background in finance, operations, and leadership—and a deep love for data and lifelong learning—I help businesses uncover what's not working and why. I’m especially skilled at turning messy, complex information into clear, actionable strategies that improve decision-making, streamline processes, and create real momentum.
 
-💞️ I’m looking to collaborate on process improvement projects and market research and competitive analysis projects. I'd love to partner with teams in Operations or HR to analyze pain points and recommend solutions. I'd love to gather and interpret data for marketing, sales, or product development teams. 
+Over the last decade, I’ve worn many hats: accountant, operations lead, consultant, manager, and strategist. Each role sharpened my ability to spot patterns, ask better questions, and build systems that work for the people who use them. Today, I’m expanding that impact through data analytics—bringing curiosity, clarity, and strategic thinking to every project.
 
-📫 How to reach me: Message me on [LinkedIn](https://www.linkedin.com/in/tinamariewilken/)
+If you're looking for someone who can bridge the gap between people, processes, and performance—someone who sees the big picture and sweats the small details—I’d love to connect.
+
+I believe curiosity is a business superpower—and I’m here to help organizations harness it.
+
+Let’s connect if you're looking for someone who blends curiosity, strategy, and data to solve real business problems. I’m open to new opportunities, collaborations, or conversations that make work smarter—and more human.
+
+📫 How to reach me: 
+Send a connection request or message me on [LinkedIn](https://www.linkedin.com/in/tinamariewilken/)
+📧 tinamariewilken@gmail.com
 
 ⚡ Fun facts: 
  1. When I'm not practicing my analyzing skills, I'm collecting more books than I can read in a lifetime. 📚🐉
